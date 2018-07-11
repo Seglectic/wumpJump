@@ -5,10 +5,6 @@ yeah man for real
 
 ![w0t](https://media.giphy.com/media/AEsUINFBsRVN6/giphy.gif)
 
-
-
 skrrrrrrrt
-
-
 
 ![hnnnnnnnng](https://i.imgur.com/9eHdA6b.gif)
