@@ -11,4 +11,4 @@ skrrrrrrrt
 
 
 
-![hnnnnnnnng](i.imgur.com/9eHdA6b.gif)
+![hnnnnnnnng](https://i.imgur.com/9eHdA6b.gif)
