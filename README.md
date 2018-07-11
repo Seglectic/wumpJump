@@ -7,6 +7,4 @@ yeah man for real
 
 
 
-
-
 skrrrrrrrt
